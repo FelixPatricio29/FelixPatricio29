@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to program (starting with Java), improve my English and understand how artificial intelligence algorithms work.
 - 💞️ I’m looking to collaborate on educational projects, useful apps, or any ideas that help other people learn more easily.
 - 📫 How to reach me you can write to me on Instagram, I'm felixBurgos7
-- 😄 Pronouns: el/he/him
+- 😄 Pronouns: I don't have a pronoun
 - ⚡ Fun fact: I can spend hours learning something I'm passionate about without realizing how much time it takes... and I still feel like continuing!
 
 <!---
